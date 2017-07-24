@@ -6,4 +6,4 @@ I don't have a pet. But i don't hate pet.
 
 I like play football.
 
-Now I work in shenzhen.
+Now I am  working in shenzhen.
